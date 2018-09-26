@@ -1,1 +1,1 @@
-# kotanagashima.github.io
+# terakoya.github.io
